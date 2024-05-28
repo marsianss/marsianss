@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me: don't 
 - 😄 Pronouns: womp womp 
-- ⚡ Fun fact: sbd of 510kg
+- ⚡ Fun fact: sbd of 560kg
 
 <!---
 marsianss/marsianss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
