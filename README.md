@@ -14,7 +14,7 @@
 
 In my free time, I'm often gaming, or spending lots of time in the gym!
 
-My favorite games to play at the moment are Overwatch 2 with friends, Stardew Valley, & Star Wars BF2.
+My favorite games to play at the moment are Overwatch 2 with friends, Stardew Valley, & Star Wars BF2.</br>
 My best lifts are a 220kg squat, a 147,5kg bench, and 245kg deadlift across two competitions (Lichtstad Cup & NK Junioren)! 
 
 [Check out my powerlifting profile!](https://www.openpowerlifting.org/u/wassimbachtour)
