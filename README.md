@@ -12,5 +12,9 @@
 ## 🔗 Let's connect!
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/wassim-bachtour-438a70327/)  
 
+In my free time, I'm often gaming, or spending lots of time in the gym!
 
-💡 **Fun Fact**: I am a powerlifting fanatic! 😎🏋️‍♂️  
+My favorite games to play at the moment are Overwatch 2 with friends, Stardew Valley, & Star Wars BF2.
+My best lifts are a 220kg squat, a 147,5kg bench, and 245kg deadlift across two competitions (Lichtstad Cup & NK Junioren)! 
+
+[Check out my powerlifting profile!](https://www.openpowerlifting.org/u/wassimbachtour)
